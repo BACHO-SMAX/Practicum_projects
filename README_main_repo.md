@@ -57,7 +57,7 @@
 ## Контакты
 
 **Чехонин Святослав**  
-📫 Telegram: [@your_username](https://t.me/your_username)  
+📫 Telegram: [@your_username](https://t.me/Heavy_metal_punk)  
 📬 Email: slava30703@gmail.com
 
 ---
